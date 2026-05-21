@@ -1,1 +1,0 @@
-# bondu-koi-3
